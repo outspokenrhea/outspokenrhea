@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @outspokenrhea
 - 👀 I’m interested in SEO, content strategy and reputation marketing
 - 🌱 I’m currently learning how to build an exceptional agency
-- 💞️ I’m looking to collaborate on innovative techical solutions
+- 💞️ I’m looking to collaborate on innovative techical solutions for organic growth and strategy
 - 📫 How to reach me rhea@outspokenmedia.com or https://outspokenmedia.com/
 
 <!---
